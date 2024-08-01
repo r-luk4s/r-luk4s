@@ -1,4 +1,10 @@
-## Hi there 👋
+## What's up? 
+Call me Ribeiro
+
+I'm currently learning Programmation.
+I use this space for my organization and sharing of the projects I have developed.
+Ask me about music.    
+
 
 <!--
 **r-luk4s/r-luk4s** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
