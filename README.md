@@ -6,7 +6,7 @@ Call me Ribeiro
 - A big fan of Supernatural.
 - Ask me about 00s songs.
 
-![](
+![tumblr_lbmeo5O88e1qcpi29o1_500](https://github.com/user-attachments/assets/ab112730-49cc-4dc7-8e0c-0ee8e5eff94a)
 <!--
 **r-luk4s/r-luk4s** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
