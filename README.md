@@ -3,8 +3,8 @@ Call me Ribeiro
 
 - I'm currently learning Psychoanalysis.
 - I use this space for my organization and sharing of the projects I have developed.
-- A big fan of Supernatural.
 - Ask me about 00s songs.
+- A big fan of Supernatural.
 
 ![tumblr_lbmeo5O88e1qcpi29o1_500](https://github.com/user-attachments/assets/ab112730-49cc-4dc7-8e0c-0ee8e5eff94a)
 <!--
