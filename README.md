@@ -1,7 +1,7 @@
 ## What's up? 
 Call me Ribeiro
 
-- I'm currently learning Psychoanalysis.
+- I'm currently learning Psychology.
 - I use this space for my organization and sharing of the projects I have developed.
 - Ask me about 00s songs.
 - A big fan of Supernatural.
